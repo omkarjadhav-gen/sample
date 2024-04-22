@@ -1,1 +1,1 @@
-This is Omkar's portfolio
+This is Omkar's portfolio.
